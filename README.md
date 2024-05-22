@@ -8,7 +8,7 @@ meu nome é kaue
 
 ### você entrar em contato comigo 📫
 
-00001109660601sp@al.educacao.sp.gov.br
+gaaraff30.@gmail.com
 
 @KAUEXWK7
 
